@@ -1,5 +1,5 @@
 # Lost-Mary-Vape-How-Smart-Chip-Integration-Is-Elevating-Disposable-Vape-Technology
-![img]([https://i.ibb.co/JwLNZMcH/1-Smbt7jz-V-JLhpn-Kuq-3-VVd-Zft-Tc32q8.jpg](https://i.ibb.co/JwLNZMcH/1-Smbt7jz-V-JLhpn-Kuq-3-VVd-Zft-Tc32q8.jpg))
+![img](https://i.ibb.co/JwLNZMcH/1-Smbt7jz-V-JLhpn-Kuq-3-VVd-Zft-Tc32q8.jpg](https://i.ibb.co/JwLNZMcH/1-Smbt7jz-V-JLhpn-Kuq-3-VVd-Zft-Tc32q8.jpg)
 
 
 **Exploring the Next Evolution in Portable Innovation**
